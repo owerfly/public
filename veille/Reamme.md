@@ -1,0 +1,3 @@
+Si si on "Open sourcait" nos lectures, podcast, articles, mooc... 
+Bref l'ensemble de nos sources d'inspiration et réflexion ? 
+
